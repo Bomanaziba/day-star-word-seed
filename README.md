@@ -1,0 +1,1 @@
+# day-star-word-seed
